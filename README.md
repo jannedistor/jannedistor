@@ -1,4 +1,4 @@
-### Hey LodiCakes 👋
+ Hey LodiCakes 👋
 <b> Hi there, I am Janne Christian Distor. I am a student of life, trying to be a salt and light to others. </b>
 
 <b> My mind is full of ideas but somehow I find it hard to say it. </b>
