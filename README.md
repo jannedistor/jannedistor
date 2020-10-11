@@ -12,4 +12,4 @@
 #### 📫 How to reach me: Email: janne.distor7982@gmail.com .
 #### ⚡ Fun fact: I learned to play Drums on my phone. 
 <br>
-<b> Bukas sisikat din muli ang araw ngunit para lang sa may tiyagang maghintay. </b>
+<b> "Bukas sisikat din muli ang araw ngunit para lang sa may tiyagang maghintay." </b>
